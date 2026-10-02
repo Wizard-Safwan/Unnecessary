@@ -1,1 +1,1 @@
-# Unnecessary Willpower
+# Unnecessary Willpower Strength
